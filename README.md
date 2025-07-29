@@ -1,0 +1,2 @@
+# vijayapura
+gummat nagari
